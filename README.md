@@ -1,1 +1,5 @@
 # GGTC.INFO-PUBLISHING-LORE-FOLLOW-UP-STORY-SERIES
+GGTC GLOBAL MEDIA 
+
+A Better Reading Series reputation 
+
